@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Sherrelyn
-- 👀 I’m interested in learning new and interesting idea.
-- 🌱 I’m currently learning all day long.
-- 💞️ I’m looking to collaborate on everyone who likes to discover interesting things.
+- 👀 I’m interested in learning new and interesting ideas.
+- 🌱 I’m currently learning everything.
+- 💞️ I’m looking to collaborate with everyone who likes me- as well as to discover kung bakit ka niya iniwan.
 - 📫 How to reach me ... you can visit my FB, IG, TWT account.
 
 <!---
