@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Sherrelyn
-- 👀 I’m interested in learning new and interesting ideas.
-- 🌱 I’m currently learning everything.
-- 💞️ I’m looking to collaborate with everyone who likes me- as well as to discover kung bakit ka niya iniwan.
-- 📫 How to reach me ... you can visit my FB, IG, TWT account.
+- 👋 the name is shee, my pronouns were she/her/hers.
+- 👀 the user is passionate, flexible, approachable and determined.
+- 🌱 the user is eager in learning everything.
+- 💞️ she is open for any future collaborations.
+- 📫 you can contact her on any of her socmed accounts.
 
 <!---
 Sherrelyn/Sherrelyn is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
