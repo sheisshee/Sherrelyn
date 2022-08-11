@@ -1,4 +1,4 @@
-- 👋 the name is shee, my pronouns were she/her/hers.
+- 👋 the name is shee, pronouns are she/her/hers.
 - 👀 the user is passionate, flexible, approachable and determined.
 - 🌱 the user is eager in learning everything.
 - 💞️ she is open for any future collaborations.
