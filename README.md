@@ -1,5 +1,5 @@
 
-- 🐥 the user is lazyyyy.
+- 🐥 the user is lazyyyy. despite her program of choice, she is not pursuing IT, periodt.
 
 <!---
 Sherrelyn/Sherrelyn is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
